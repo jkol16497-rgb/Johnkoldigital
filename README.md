@@ -10,7 +10,8 @@ If it’s entertaining, I’m making it.
 - **Random Vibes** - A mix of everything. No limits, just creativity.
 
 ## Watch Me Here- **Facebook**: [Pospe Media](https://www.facebook.com/PospeMedia)
-- **YouTube**: John Kol
+- **YouTube**: - **Facebook**: [Pospe Media](https://www.facebook.com/PospeMedia)
+- **YouTube**: @John Kol7595
 - **TikTok**: [@jaykay295568](https://www.tiktok.com/@jaykay295568)
 - **Facebook**: [Pospe Media](https://www.facebook.com/PospeMedia)
 - **YouTube**: John Kol
