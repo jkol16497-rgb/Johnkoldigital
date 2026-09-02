@@ -9,7 +9,8 @@ If it’s entertaining, I’m making it.
 - **Story Videos** - Short - **Trending Content** - Whatever’s hot on TikTok, Facebook, and YouTube
 - **Random Vibes** - A mix of everything. No limits, just creativity.
 
-## Watch Me Here
+## Watch Me Here- **Facebook**: [Pospe Media](https://www.facebook.com/PospeMedia)
+- **YouTube**: John Kol
 - **TikTok**: [@jaykay295568](https://www.tiktok.com/@jaykay295568)
 - **Facebook**: [Pospe Media](https://www.facebook.com/PospeMedia)
 - **YouTube**: John Kol
